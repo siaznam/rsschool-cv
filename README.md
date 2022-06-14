@@ -1,1 +1,1 @@
-https://siaznam.github.io/rsschool-cv/cv
+https://siaznam.github.io/rsschool-cv
